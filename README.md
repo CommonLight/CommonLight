@@ -4,4 +4,4 @@
 - 🤔 I’m looking for help with understanding JavaScript in more depth.
 - 💬 Ask me about how you can save $10 a month on car insurance through Geico.
 - 📫 How to reach me: sacredlightstudios@gmail.com, https://www.linkedin.com/in/luke-a-erickson/
-- ⚡ Fun fact: I love nature walks, playing music, creating videos/graphics, writing stories, and spending time with my beautiful wife and kids!
+- ⚡ I love nature walks, playing music, creating videos/graphics, writing stories, and spending time with my beautiful wife and kids!
